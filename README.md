@@ -4,7 +4,7 @@ My grasping of these concepts comes from SCOTT DUNCAN's teachings on Facebook TH
 Please note that the information provided here does not replace reading **THE TENDER FOR LAW** in its entirety to fully grasp these concepts. In the past six years, I have observed many individuals struggle to assert their rights (which are debits) due to misunderstandings about what truly holds value. The links below will serve as a starting point for your studies. Please remember that this is all this is **SURETY, ACCOUNTING and the law of AGENCY**
 
 **PUBLIC NOTICE**
-Public Servant,
+To Public Servant,
 
 Is the Certificate of Birth a security, or not?
 Can I use the Security of The Person To discharge this PUBLIC DEBT, or not?
