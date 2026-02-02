@@ -38,7 +38,13 @@ I was ALWAYS interested in TRUTH, but none gave it but Scott Duncan.
 Now, others are on the path and are actively taking charge of their programming and this is RECORD of my own IN ACTION.
 
 **FIRST - I need a timeline to contextualize for the RETARDIÉS following along.**
+
+
 <img width="350" height="300" alt="image" src="https://github.com/user-attachments/assets/0dc89cc5-4619-4a55-8b97-1234a79943fe" />
+
+
+
+
 I started with Corbett Report and TRAGEDY AND HOPE and The Peace Revolution Podcast was my initial Redpill moment, still no idea about the LEGAL nature of our system.
 NO french media brought me to my growth, let that sink in. We will see how language gaps as been weaponized against the unknowing mass, to busy to care. See the ("YOU THINK WRONG AND VALUE THE WRONG THINGS" Scottism.) 
 Brush through some of the accomplishement of emencipation by a man name Rob InthePage Family that has for a long time has fallen of the public face of internet, I wonder if he is still around somewhere of dead in a ditch? I wonder if he knew about ACCOUNTING and SURTEY casue he sure didn't take about it but, he never charge money. 
