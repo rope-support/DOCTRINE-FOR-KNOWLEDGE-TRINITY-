@@ -37,6 +37,11 @@ This is an objective to create a compilation of GOOD and BAD thing, GOOD goes un
 I was ALWAYS interested in TRUTH, but none gave it but Scott Duncan.
 Now, others are on the path and are actively taking charge of their programming and this is RECORD of my own IN ACTION.
 
+
+
+
+
+
 **FIRST - I need a timeline to contextualize for the RETARDIÉS following along.**
 
 
