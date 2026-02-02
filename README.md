@@ -41,14 +41,10 @@ Now, others are on the path and are actively taking charge of their programming 
 
 
 
-
-
 **FIRST - I need a timeline to contextualize for the RETARDIÉS following along.**
 
 
 <img width="350" height="300" alt="image" src="https://github.com/user-attachments/assets/0dc89cc5-4619-4a55-8b97-1234a79943fe" />
-
-
 
 
 I started with Corbett Report and TRAGEDY AND HOPE and The Peace Revolution Podcast was my initial Redpill moment, still no idea about the LEGAL nature of our system.
@@ -59,10 +55,11 @@ Scott Duncan is the reason of this whole repository, to record and document the 
 All reference to my past, are in contraste always irrelevant outside of the context of me saying MY STORY, interlaced with valuable teachings.
 Akind to what is a martial art practicionner giving back can start even if I never reached the end of the TTFL, like Chris the Landscaper did and Ryan the Repairman is attempting.
 Note that these 2, Chris and Ryan are VERY important in the context of all. I'm not here to make friends, contrairtly as my programming want me to always presuppose.
-In the teaching of Scott, NOT LYING FOR A WEEK is the first hands on exercise. DO THAT and see how much lies is permuated in casual everyday conversation, in this exercises, you will notice that not talking becomes the default modality outside of the things you know professionnaly, wherein even there, lies occures by ommission and other rethorical tactics. Our KNOWING bandwitdh is VERY small, but others, polymaths for instance can really be impressive sometimes.
+In the teaching of Scott, NOT LYING FOR A WEEK is the first hands on exercise. DO THAT and see how much lies is permuated in casual everyday conversation, in this exercises, you will notice that not talking becomes the default modality outside of the things you know professionnaly, wherein even there, lies occures by ommission and other rethorical tactics. Our (mine is for sure) KNOWING bandwitdh is VERY small, but others, polymaths for instance can really be impressive sometimes.
+
 Alright.
 
-The BASICS to UNDERSTAND What's going on here, I have some ACCOUNTING to do and CREDIT where WREDIT is DUE - SCOTT DUNCAN FOR RETARDIE
+The BASICS to UNDERSTAND What's going on here, I have some ACCOUNTING to do and CREDIT where WHERE CREDIT is DUE - SCOTT DUNCAN FOR RETARDIE
 Here are the Basic Reads, don't stop yourself want you read them, start over and read again. It never stop giving, there are layers upon layers.
 Now open another window for your LOOKING UP THE FUCKIGN DEFINISSION OF THE WORDS! and other quick VERIFICATIONS.
 
