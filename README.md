@@ -42,6 +42,7 @@ Now, others are on the path and are actively taking charge of their programming 
 
 
 
+
 **FIRST - I need a timeline to contextualize for the RETARDIÉS following along.**
 
 
