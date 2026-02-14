@@ -4,7 +4,8 @@
 **Disclaimer**
 
 **The following is shared under a Creative Commons LICENSE, there is NO COMMERCE EXPECTED OR IMPLIED.** 
-My grasping of these concepts comes from SCOTT DUNCAN's teachings on Facebook THE TENDER FOR LAW group, my time from 2013 until the group got censored. If any of this contradicts SCOTT DUNCAN's, then it should be disregarded and treated as SHIT STAIN until revised, as I am NOT SCOTT DUNCAN and ONLY LEARNING. It is Scott Duncan who has shared his knowledge with me and others.
+My grasping of these concepts comes from SCOTT DUNCAN's teachings on Facebook THE TENDER FOR LAW group, my time from 2013 until the group got censored. If any of this contradicts SCOTT DUNCAN's, then it should be disregarded and treated as SHIT-STAIN until revised, as I am NOT SCOTT DUNCAN and I am ONLY LEARNING. 
+It is Scott Duncan who has shared his knowledge with me and others.
 
 Please note that the information provided here does not replace reading **THE TENDER FOR LAW** in its entirety to fully grasp these concepts. In the past six years, I have observed many individuals struggle to assert their rights (which are debits) due to misunderstandings about what truly holds value. The links below will serve as a starting point for your studies. Please remember that this is all this is **SURETY, ACCOUNTING and the law of AGENCY**
 
