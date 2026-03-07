@@ -4,10 +4,14 @@
 **Disclaimer**
 
 **The following is shared under a Creative Commons LICENSE, there is NO COMMERCE EXPECTED OR IMPLIED.** 
+
 My grasping of these concepts comes from SCOTT DUNCAN's teachings on Facebook THE TENDER FOR LAW group, my time from 2013 until the group got censored. If any of this contradicts SCOTT DUNCAN's, then it should be disregarded and treated as SHIT-STAIN until revised, as I am NOT SCOTT DUNCAN and I am ONLY LEARNING. 
+
 It is Scott Duncan who has shared his knowledge with me and others.
 
-Please note that the information provided here does not replace reading **THE TENDER FOR LAW** in its entirety to fully grasp these concepts. In the past six years, I have observed many individuals struggle to assert their rights (which are debits) due to misunderstandings about what truly holds value. The links below will serve as a starting point for your studies. Please remember that this is all this is **SURETY, ACCOUNTING and the law of AGENCY**
+Please note that the information provided here does not replace reading **THE TENDER FOR LAW** in its entirety to fully grasp these concepts. In the past six years, I have observed many individuals struggle to assert their rights (which are debits) due to misunderstandings about what truly holds value. The links below will serve as a starting point for your studies. 
+
+Please remember that this is all this is **SURETY, ACCOUNTING and the law of AGENCY**
 
 [YOU THINK WRONG AND VALUE THE WRONG THINGS](https://web.archive.org/web/20190528003913/https://kentbarrett.com/you-think-wrong-and-value-the-wrong-things/)
 
@@ -29,7 +33,7 @@ Please note that the information provided here does not replace reading **THE TE
 
 [Who Did More Good? By Ryan, that good goy](https://archive.is/GXQAb)
 
-The meaning of word that binds us legally are unknown to most unbottered to look and, believed by many...if all believes is evil, we can see the problem. We ought to fight our own evil tendencies as a duty, each and every moment of concisouness. Otherwise we are no better then what we despise the most, and reflect has self haterd instead of self respect.
+The meaning of word that binds us legally (LEGALESE) are unknown to most unbottered to look and, believed by many...if all believes is evil, we can see the problem. We ought to fight our own evil tendencies as a duty, each and every moment of concisouness. Otherwise we are no better then what we despise the most, and reflect has self haterd instead of self respect. Look up the Legal Definission in order to have the LEGAL DEFINISSION of the word, otherwise you are not looking at the ACCURATE thing you are trying to define.
 
 The contracts and use of signature for everyday purpose is loaded with immplication that are beyond you, but they are not hidden. It is your responsonsability to break the programing and maintain good thinking.
 
