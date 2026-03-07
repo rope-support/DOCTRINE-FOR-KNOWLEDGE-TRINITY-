@@ -37,7 +37,7 @@ The meaning of word that binds us legally (LEGALESE) are unknown to most unbotte
 
 The contracts and use of signature for everyday purpose is loaded with immplication that are beyond you, but they are not hidden. It is your responsonsability to break the programing and maintain good thinking.
 
-You Think Wrong and Value the Wrong Things" -Scott Duncan
+"You Think Wrong and Value the Wrong Things" -Scott Duncan
 
 **PUBLIC NOTICE**
 
