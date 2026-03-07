@@ -97,18 +97,21 @@ To create, hold and control the records.
 
 Now, formally this will allow passing verified knowledge for others and for them to REPEAT the "TRUST, BUT VERIFY!" Top Scotism.
 All reference to my past, are in contrast always irrelevant outside the context of me saying MY STORY, interlaced with valuable teachings.
-Akin to what is a martial art practitioner, giving back can start even if one never reached the end. In this case, the end of the TTFL, like Chris the Landscaper did and Ryan the Repairman is attempting. Both are part of the thing who set me in motions, albeit a bit slow I will admit.
+Akin to what is a martial art practitioner, giving back can start even if one never reached the end. In this case, the end of the TTFL, like Chris the Landscaper did and Ryan the Repairman is attempting. 
+Both are part of the thing who set me in motions, albeit a bit slow I will admit.
 
-I have to make sure I pay my debts and this certainly a way to get there. I wish I had a boat but I don't.
+I have to pay my debts, and this certainly a way to get there. I wish I had a boat but I don't.
 
-I have to layout the landscape, now that the timeline exist, I will occasinally insert new things depending on time and context.
+I have to layout the horizon from that small vintage point I got, now that the timeline exist, I will occasinally insert new things depending on time and context.
 I moved from the East Coast in end of 2007, begining of 2008. 
 The time I had really highlighted that I knew nothing of the dynamics of the world, speaking french was awesome but devastiting time lost of not already knowing english. And then, only in 2014 did I learn that "English is the offical language of commerce" and is  was aximoatic in learning ANYTHING ELSE.
 
 This is for the records. 
 
 I want to make sure the work of Scott is represented exactly and unchanged. If anything is missing, this is a mistake and on notice will be corrected immediately.
-ALL his writings can be found 
+ALL his writings can be found;
+
+[SCOTT'S ARTICLES](https://web.archive.org/web/20190528025239/https://kentbarrett.com/scott-duncan/)
 
 
 
