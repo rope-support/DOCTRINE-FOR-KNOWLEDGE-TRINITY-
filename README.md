@@ -1,139 +1,88 @@
-
-
-
 **Disclaimer**
 
-**The following is shared under a Creative Commons LICENSE, there is NO COMMERCE EXPECTED OR IMPLIED.** 
+**The following is shared under a Creative Commons LICENSE 3.0; there is NO COMMERCE EXPECTED OR IMPLIED.**
 
-My grasping of these concepts comes from SCOTT DUNCAN's teachings on Facebook THE TENDER FOR LAW group, my time from 2013 until the group got censored. If any of this contradicts SCOTT DUNCAN's, then it should be disregarded and treated as SHIT-STAIN until revised, as I am NOT SCOTT DUNCAN and I am ONLY LEARNING. 
+My grasp of these concepts comes from Scott Duncan’s teachings on Facebook’s “The Tender for Law” group, from 2013 until the group got censored. If any of this contradicts Scott Duncan’s, then it should be disregarded and treated as “shit-stain” until revised, as I am NOT Scott Duncan and I am ONLY learning.
 
-It is Scott Duncan who has shared his knowledge with me and others.
+It is Scott Duncan who has shared his knowledge with me and others over the years.
 
-Please note that the information provided here does not replace reading **THE TENDER FOR LAW** in its entirety to fully grasp these concepts. In the past six years, I have observed many individuals struggle to assert their rights (which are debits) due to misunderstandings about what truly holds value. The links below will serve as a starting point for your studies. 
+Please note that the information provided here does not replace reading for yourself “The Tender for Law” in its entirety to fully grasp these concepts. In the past six years, I have observed many individuals struggle to assert their rights (which are debts) due to misunderstandings about what truly holds value. 
 
-Please remember that this is all this is **SURETY, ACCOUNTING and the law of AGENCY**
+The links below will serve as a starting point for your studies.
+
+Please remember that this is all about **SURETY, ACCOUNTING and the law of AGENCY.**
 
 [YOU THINK WRONG AND VALUE THE WRONG THINGS](https://web.archive.org/web/20190528003913/https://kentbarrett.com/you-think-wrong-and-value-the-wrong-things/)
-
 [PERSONS FOR IDIOTS](https://web.archive.org/web/20190528031033/https://kentbarrett.com/persons-for-idiots/)
-
 [INSURANCE FOR THE INEPT](https://web.archive.org/web/20190528031717/https://kentbarrett.com/insurance-for-the-inept/)
-
 [SURETY FOR IDIOTS](https://web.archive.org/web/20190528010446/https://kentbarrett.com/surety-for-idiots/)
-
 [JOINDER FOR IDIOTS](https://web.archive.org/web/20190528032742/https://kentbarrett.com/joinder-for-idiots/)
-
 [LIEN YOUR NAME](https://web.archive.org/web/20190528033829/https://kentbarrett.com/lien_your_name/)
-
 [ATTORNEY GENERAL MONEY](https://web.archive.org/web/20190528004449/https://kentbarrett.com/attorney-general-money-by-lou-manotti/)
-
 [LIES AND THE LYING LIARS WHO LIE ABOUT THE LIES THEY TELL](https://web.archive.org/web/20190528002853/https://kentbarrett.com/lies-and-the-lying-liars-who-lie-about-the-lies-they-tell/)
-
 [POS CHRISTIANS](https://web.archive.org/web/20190528014343/https://kentbarrett.com/the-truth-about-the-illuminati/)
-
 [Who Did More Good? By Ryan, that good goy](https://archive.is/GXQAb)
 
-The meaning of word that binds us legally (LEGALESE) are unknown to most unbottered to look and, believed by many...if all believes is evil, we can see the problem. We ought to fight our own evil tendencies as a duty, each and every moment of concisouness. Otherwise we are no better then what we despise the most, and reflect has self haterd instead of self respect. Look up the Legal Definission in order to have the LEGAL DEFINISSION of the word, otherwise you are not looking at the ACCURATE thing you are trying to define.
+The meaning of a word that binds us legally (LEGALESE) are often unknown to most, and believed by many—if all believes is evil, we can see the problem. We ought to fight our own evil tendencies as a duty, each and every moment of consciousness. Otherwise, we are no better than what we despise most, and reflect as self-haters instead of self-respect. Look up the Legal Definition in order to have the LEGAL DEFINITION of the word, otherwise, you are not looking at the ACCURATE thing you are trying to define.
 
-The contracts and use of signature for everyday purpose is loaded with immplication that are beyond you, but they are not hidden. It is your responsonsability to break the programing and maintain good thinking.
+The contracts and use of signatures for everyday purposes are loaded with implications that are beyond you, but they are not hidden. It is your responsibility to break the programming and maintain good thinking.
 
-"You Think Wrong and Value the Wrong Things" -Scott Duncan
+“You Think Wrong and Value the Wrong Things” – Scott Duncan
 
 **PUBLIC NOTICE**
 
-To Public Servant,
+To Public Servant:
+
 Is the Certificate of Birth a security, or not?
-Can I use the Security of The Person To discharge this PUBLIC DEBT, or not?
+
+Can I use the Security of the Person to discharge this PUBLIC DEBT, or not?
+
 Who is SURETY for this debt?
-Time is of the essence,
+
+Time is of the essence.
+
 With integrity and in good faith.
 
 ME
 
 # DOCTRINE FOR KNOWLEDGE; TRINITARIAN TRUTH
+
 Note that this portion is part of contextual trivia of my early mental model to arrive at knowledge.
-This frame work "The Trivium Method, is a classical educational framework consisting of three foundational liberal arts—Grammar, Logic, and Rhetoric—designed to teach students how to think rather than what to think. It aligns with child development stages: 
--gathering facts (Grammar), 
--understanding the "why" (Logic),
--and expressing knowledge persuasively (Rhetoric).
 
-On that basis, I knew I needed to get the grammar right, learning english was among that outline. I knew I had to parse through a lot of information, and I knew that in the spirit of martial art, teaching to the next generation is important. I needed a plan and more... context, and that's GRAMMAR+LOGIC now the rethorics seem to also be the part of DOING. The ethymology of the word refers to speaking and and oration - I see some action in there I see a doing that requires having the understanding, as it is the only way to properly pass knowledge, it first has to be replicatable.
+This framework, “The Trivium Method,” is a classical educational framework consisting of three foundational liberal arts—Grammar, Logic, and Rhetoric—designed to teach students how to think rather than what to think. It aligns with child development stages:
 
-"Trust, but Verify." is often cited has a top Scottism. 
-I see a parallele that may take me a time to verify but.... there seem to be wisdom ito just getting in action, to remain into Truth.
+-   gathering facts (Grammar)
+-   understanding the “why” (Logic)
+-   and expressing knowledge persuasively (Rhetoric)
 
-This is the place I document where is all started. I will **CUT TO THE CHASE** to keep it on topic. 
+On that basis, I knew I needed to get the grammar right; learning English was among that outline. I knew I had to parse through a lot of information, and I knew that in the spirit of martial art, teaching to the next generation is important. I needed a plan and more… context, and that’s GRAMMAR+LOGIC now the rhetorics seem to also be the part of DOING. The etymology of the word refers to speaking and oration—I see some action in there; I see a doing that requires having the understanding, as it is the only way to properly pass knowledge; it first has to be replicatable.
 
-This is a place for RETARDIÉ interested in KICKING the programming. 
+“Trust, but Verify” is often cited as a top Scottism.
 
-I'm old, I can't beat it and can only keep it in check.
-EVERYTHING therein, as for highlight, is to be BASELINE to then be VERIFIED for yourself.
-WHY? Because we were lied to since birth and for that reason, it's HARD not to lie in our own life, LIES are not only the TRADITIONAL lie to your face style.
-We see LOTS of LIE by IGNORANCE, through BELIEF and by very popular way is by OMISSION.
-Not knowing about a topic and making it up as you go is riddled with lies by ignorance and/or ommision.
-Bottom line STFU till you are qualified to talk about the topic. 
-Generally topics in which you are a PROFESSIONAL are more likely to be things you KNOW. 
-This is not axiom but a direction only...
+I see a parallel that may take me a time to verify but… there seem to be wisdom in just getting in action.
 
-WHAT Can be true? Things you can verify, but you need to know where to start.
-Start at the beginning like this. Now why for French RETARDIÉ, you ask, and it's in English. 
-Well, because it's simple, the language of law and commerce is ENGLISH.
-It all started for me in 2012, but really in 2014 when I meet Just a Guy on the Internet, Scott Duncan.
-Why NOW? Well, the truth is harder than you can stomach, but it just needs to be digested and some are slower than other, some lie to themselves more than others. 
+2014 is the year I started to interact in the TTFL and ask questions, learned English—and still in progress.
 
-This is an objective to create a compilation of GOOD and BAD thing, GOOD goes unnoticed and no one gives flying fucks. On the other end, BAD can be LEVERAGE. There will be lots of that.
+I never had a problem of value; I always had a skill people wanted to pay for; working at heights.
 
-I was ALWAYS interested in TRUTH, but no one gave it but Scott Duncan.
+I kept my family close to me, and the gov as far away possible all my life by being a good goy; I always paid my taxes, never asked for a handouts.
 
-Now, I am actively guarding against the programming that was intended for me and my generation, and this is a record of it.
-As well as the fullfilling of a duty to pass the information so other, and never charge a dime for it. Just like Scott.
+I relied on the person I have… now society is falling apart and I am not getting what I paid for...
 
-By; Me
-
-**FIRST - I need a timeline to contextualize for the RETARDIÉ following along.**
-
-
-<img width="350" height="300" alt="image" src="https://github.com/user-attachments/assets/0dc89cc5-4619-4a55-8b97-1234a79943fe" />
-
-I started with;
-2007-2012
-Corbett Report and TRAGEDY AND HOPE and The Peace Revolution Podcast was my initial Red pill moment, still no idea about the LEGAL nature of our system.
-NO french media brought me to my growth, let that sink in. We will see how language gaps has been weaponized against the unknowing mass, too busy to care. See the ("YOU THINK WRONG AND VALUE THE WRONG THINGS" Scotism.) 
-Brush through some of the accomplishment of emancipation by a man name **Rob InthePage Family** that has for a long time has fallen of the public face of internet, I wonder if he is still around somewhere of dead in a ditch? I wonder if he knew about ACCOUNTING and SURETY because he certainly didn't talk about it but, he never charged money, so there is that. I only learned later that whatever happened in his method, it was not true because he didn't talk about Surety, Accounting and the Law of Agency. Simple.
-
-2013~
-I had a phase through using psychedelic earlier in my life, and ironically had me find Scott Duncan, shortly after some irrelevant Freedumber-Nonsense.
-First, I saw **Pete Daoust** with his trial and tribulation of the TTFL and innevitably I found Scott.
-There was also that guy that sounded like her had a dick in his mouth - I digress, just for time reference.
-
-In short, Scott is foundational in grasping some of the importance of record keeping and the reason of this repository. To create a record, document the verification hold and control the records is very important.
-
-Now, formally this will allow passing verified knowledge for others and for them to REPEAT the "TRUST, BUT VERIFY!" Top Scottism.
-All reference to my past, are in contrast always irrelevant outside the context of me saying MY STORY, interlaced with valuable teachings.
-Akin to what is a martial art practitioner, giving back can start even if one never reached the end. In this case, the end of the TTFL, like Chris the Landscaper did and Ryan the Repairman is attempting. 
-
-Both are part of the thing who set me in motions, albeit a bit slow I will admit.
-I have to pay my debts, and this certainly a way to get there. I wish I had a boat but I don't.
-
-**RETARDIER ALERT**
-*For context only, and what to not do.*
-2014 is the year I started to interact in the TTFL and ask questions, learned English - and still in progress
-I never had a problem of value, I always had a skill that was desired - working at heights.
-I kept my familly close and the gov away al my life by being a good goy, I always payed my taxes, never asked for hand out. 
-I did not prioritize the mechanism of commerce and relied on the PERSON I have... now society is falling apart and I am not getting what I paid for. 
 I was employed far too long.
 
-I have to layout the horizon from that small vintage point I got for being a qubecois, now that the timeline exist, I will occasinally insert new things depending on time and context.
-I moved from the East Coast in end of 2007, begining of 2008. 
-The time I had really highlighted that I knew nothing of the dynamics of the world, speaking french was awesome but devastiting time lost of not already knowing english. And then, only in 2014 did I learn that "English is the offical language of commerce" and is  was aximoatic in learning ANYTHING ELSE.
+I have to layout the horizon from that small vintage point I got for being a Québécois, now that the timeline exists, I will occasionally insert new things depending on time and context.
 
-This is for the records. 
+I moved from the East Coast in end of 2007, beginning of 2008.
+
+The time I had really highlighted that I knew nothing of the dynamics of the world, speaking French was awesome but devastating time lost of not already knowing English. And then, only in 2014 did I learn that “English is the official language of commerce” and is axiomatic in learning ANYTHING ELSE useful.
+
+This is for the records.
 
 I want to make sure the work of Scott is represented exactly and unchanged. If anything is missing, this is a mistake and on notice will be corrected immediately.
 
 His writings can be found, I am sure there are more across the interwebs;
 
-[SCOTT'S ARTICLES](https://web.archive.org/web/20190528025239/https://kentbarrett.com/scott-duncan/)
+[SCOTT’S ARTICLES](https://web.archive.org/web/20190528025239/https://kentbarrett.com/scott-duncan/)
 
-
-
+---
