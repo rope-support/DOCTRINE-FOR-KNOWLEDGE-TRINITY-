@@ -13,14 +13,23 @@ The links below will serve as a starting point for your studies.
 Please remember that this is all about **SURETY, ACCOUNTING and the law of AGENCY.**
 
 [YOU THINK WRONG AND VALUE THE WRONG THINGS](https://web.archive.org/web/20190528003913/https://kentbarrett.com/you-think-wrong-and-value-the-wrong-things/)
+
 [PERSONS FOR IDIOTS](https://web.archive.org/web/20190528031033/https://kentbarrett.com/persons-for-idiots/)
+
 [INSURANCE FOR THE INEPT](https://web.archive.org/web/20190528031717/https://kentbarrett.com/insurance-for-the-inept/)
+
 [SURETY FOR IDIOTS](https://web.archive.org/web/20190528010446/https://kentbarrett.com/surety-for-idiots/)
+
 [JOINDER FOR IDIOTS](https://web.archive.org/web/20190528032742/https://kentbarrett.com/joinder-for-idiots/)
+
 [LIEN YOUR NAME](https://web.archive.org/web/20190528033829/https://kentbarrett.com/lien_your_name/)
+
 [ATTORNEY GENERAL MONEY](https://web.archive.org/web/20190528004449/https://kentbarrett.com/attorney-general-money-by-lou-manotti/)
+
 [LIES AND THE LYING LIARS WHO LIE ABOUT THE LIES THEY TELL](https://web.archive.org/web/20190528002853/https://kentbarrett.com/lies-and-the-lying-liars-who-lie-about-the-lies-they-tell/)
+
 [POS CHRISTIANS](https://web.archive.org/web/20190528014343/https://kentbarrett.com/the-truth-about-the-illuminati/)
+
 [Who Did More Good? By Ryan, that good goy](https://archive.is/GXQAb)
 
 The meaning of a word that binds us legally (LEGALESE) are often unknown to most, and believed by many—if all believes is evil, we can see the problem. We ought to fight our own evil tendencies as a duty, each and every moment of consciousness. Otherwise, we are no better than what we despise most, and reflect as self-haters instead of self-respect. Look up the Legal Definition in order to have the LEGAL DEFINITION of the word, otherwise, you are not looking at the ACCURATE thing you are trying to define.
