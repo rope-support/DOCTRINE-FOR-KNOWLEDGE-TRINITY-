@@ -109,7 +109,8 @@ The time I had really highlighted that I knew nothing of the dynamics of the wor
 This is for the records. 
 
 I want to make sure the work of Scott is represented exactly and unchanged. If anything is missing, this is a mistake and on notice will be corrected immediately.
-ALL his writings can be found;
+
+His writings can be found, I am sure there are more across the interwebs;
 
 [SCOTT'S ARTICLES](https://web.archive.org/web/20190528025239/https://kentbarrett.com/scott-duncan/)
 
