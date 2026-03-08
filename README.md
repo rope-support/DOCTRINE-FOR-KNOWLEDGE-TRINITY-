@@ -51,11 +51,23 @@ With integrity and in good faith.
 ME
 
 # DOCTRINE FOR KNOWLEDGE; TRINITARIAN TRUTH
+Note that this portion is part of contextual trivia of my early mental model to arrive at knowledge.
+This frame work "The Trivium Method, is a classical educational framework consisting of three foundational liberal arts—Grammar, Logic, and Rhetoric—designed to teach students how to think rather than what to think. It aligns with child development stages: 
+-gathering facts (Grammar), 
+-understanding the "why" (Logic),
+-and expressing knowledge persuasively (Rhetoric).
 
-This is the place I document where is all started. I will CUT TO THE CHASE to keep it on topic. 
+On that basis, I knew I needed to get the grammar right, learning english was among that outline. I knew I had to parse through a lot of information, and I knew that in the spirit of martial art, teaching to the next generation is important. I needed a plan and more... context, and that's GRAMMAR+LOGIC now the rethorics seem to also be the part of DOING. The ethymology of the word refers to speaking and and oration - I see some action in there I see a doing that requires having the understanding, as it is the only way to properly pass knowledge, it first has to be replicatable.
+
+"Trust, but Verify." is often cited has a top Scottism. 
+I see a parallele that may take me a time to verify but.... there seem to be wisdom ito just getting in action, to remain into Truth.
+
+This is the place I document where is all started. I will **CUT TO THE CHASE** to keep it on topic. 
 
 This is a place for RETARDIÉ interested in KICKING the programming. 
-I'm old, I can't beat it and can only keep it in check. EVERYTHING therein, as for highlight, is to be BASELINE knowledge to then be VERIFIED for yourself.
+
+I'm old, I can't beat it and can only keep it in check.
+EVERYTHING therein, as for highlight, is to be BASELINE to then be VERIFIED for yourself.
 WHY? Because we were lied to since birth and for that reason, it's HARD not to lie in our own life, LIES are not only the TRADITIONAL lie to your face style.
 We see LOTS of LIE by IGNORANCE, through BELIEF and by very popular way is by OMISSION.
 Not knowing about a topic and making it up as you go is riddled with lies by ignorance and/or ommision.
@@ -74,6 +86,7 @@ This is an objective to create a compilation of GOOD and BAD thing, GOOD goes un
 I was ALWAYS interested in TRUTH, but no one gave it but Scott Duncan.
 
 Now, I am actively guarding against the programming that was intended for me and my generation, and this is a record of it.
+As well as the fullfilling of a duty to pass the information so other, and never charge a dime for it. Just like Scott.
 
 By; Me
 
@@ -86,23 +99,31 @@ I started with;
 2007-2012
 Corbett Report and TRAGEDY AND HOPE and The Peace Revolution Podcast was my initial Red pill moment, still no idea about the LEGAL nature of our system.
 NO french media brought me to my growth, let that sink in. We will see how language gaps has been weaponized against the unknowing mass, too busy to care. See the ("YOU THINK WRONG AND VALUE THE WRONG THINGS" Scotism.) 
-Brush through some of the accomplishment of emancipation by a man name Rob InthePage Family that has for a long time has fallen of the public face of internet, I wonder if he is still around somewhere of dead in a ditch? I wonder if he knew about ACCOUNTING and SURETY because he certainly didn't talk about it but, he never charged money, so there is that. I only learned later that whatever happened in his method, it was not true because he didn't talk about Surety, Accounting and the Law of Agency. Simple.
+Brush through some of the accomplishment of emancipation by a man name **Rob InthePage Family** that has for a long time has fallen of the public face of internet, I wonder if he is still around somewhere of dead in a ditch? I wonder if he knew about ACCOUNTING and SURETY because he certainly didn't talk about it but, he never charged money, so there is that. I only learned later that whatever happened in his method, it was not true because he didn't talk about Surety, Accounting and the Law of Agency. Simple.
 
 2013~
 I had a phase through using psychedelic earlier in my life, and ironically had me find Scott Duncan, shortly after some irrelevant Freedumber-Nonsense.
-First, I saw Pete Daoust and his trial and tribulation in the TTFL and innevitably found Scott.
-He is foundational in my understanding why the reason of this whole repository, to record and document the verification is important.
-To create, hold and control the records.
+First, I saw **Pete Daoust** with his trial and tribulation of the TTFL and innevitably I found Scott.
+There was also that guy that sounded like her had a dick in his mouth - I digress, just for time reference.
 
+In short, Scott is foundational in grasping some of the importance of record keeping and the reason of this repository. To create a record, document the verification hold and control the records is very important.
 
-Now, formally this will allow passing verified knowledge for others and for them to REPEAT the "TRUST, BUT VERIFY!" Top Scotism.
+Now, formally this will allow passing verified knowledge for others and for them to REPEAT the "TRUST, BUT VERIFY!" Top Scottism.
 All reference to my past, are in contrast always irrelevant outside the context of me saying MY STORY, interlaced with valuable teachings.
 Akin to what is a martial art practitioner, giving back can start even if one never reached the end. In this case, the end of the TTFL, like Chris the Landscaper did and Ryan the Repairman is attempting. 
-Both are part of the thing who set me in motions, albeit a bit slow I will admit.
 
+Both are part of the thing who set me in motions, albeit a bit slow I will admit.
 I have to pay my debts, and this certainly a way to get there. I wish I had a boat but I don't.
 
-I have to layout the horizon from that small vintage point I got, now that the timeline exist, I will occasinally insert new things depending on time and context.
+**RETARDIER ALERT**
+*For context only, and what to not do.*
+2014 is the year I started to interact in the TTFL and ask questions, learned English - and still in progress
+I never had a problem of value, I always had a skill that was desired - working at heights.
+I kept my familly close and the gov away al my life by being a good goy, I always payed my taxes, never asked for hand out. 
+I did not prioritize the mechanism of commerce and relied on the PERSON I have... now society is falling apart and I am not getting what I paid for. 
+I was employed far too long.
+
+I have to layout the horizon from that small vintage point I got for being a qubecois, now that the timeline exist, I will occasinally insert new things depending on time and context.
 I moved from the East Coast in end of 2007, begining of 2008. 
 The time I had really highlighted that I knew nothing of the dynamics of the world, speaking french was awesome but devastiting time lost of not already knowing english. And then, only in 2014 did I learn that "English is the offical language of commerce" and is  was aximoatic in learning ANYTHING ELSE.
 
